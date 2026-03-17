@@ -1,6 +1,6 @@
-+°*.+欢迎。*°+
-有时我可以和朋友一起或独自在pt上。
-当我一个人的时候，C+H✅.我很害羞，所以我没有勇气和陌生人聊天。(我的英语也很差，，，，(TT))
++º*。+WELCOME。*º+
+I can sometimes be found on pt with friends or alone.
+when I am alone,C+H✅.I'm shy, so I don't have the courage to chat with stranger.(my English is also bad，，，，，(TT))
 
-关于FANDOMS☆--APH，Honkai：星铁，PJSK.
-我喜欢这些字符--冰岛，卡斯托利斯，金立佳。
+ABOUT FANDOMS☆——APH,Honkai：Star Rail,PJSK.
+I LIKE THESE CHARACTERS☆——Iceland,Castorice,Yoisaki Kanade.。
